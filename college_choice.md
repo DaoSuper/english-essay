@@ -24,24 +24,30 @@ The ease of visiting home, while enjoyalbe, might lead to an overuse of this saf
 回家的舒适，是有乐趣的，也可能存在安全感过度从而限制个人的发展和成长。
 
 When stressors such as a roommate conflict or loneliness arise,using home as an escape may exacerbate the problem.Instead of confronting issues head-on and learning how to rly on yourself,leaning too heavily on your family can distance you further from your campus community.
+
 当室友冲突或孤独等压力出现时，把家作为逃避的地方可能会使问题恶化。不是直面问题和学习如何依靠自己，而是过于依赖家庭这会使你与校园社区的距离越来越远。
 
 #### Benefits of a College Far Away
 #### 离家远的大学的好处
 
 In general,being far away has the benefit of pushing you to make new friends and find a new community on campus.If you become homesick or start struggling with coursework,you'll learn to become more self-reliant.You can utilize your newly formed friends and ment for support.
+
 一般来说，远离校园有助于你结交新朋友，在校园里找到新的社区。如果你想家或开始在功课上挣扎，你会学会变得更加自立。你可以利用你新结交的朋友和导师来提供支持。
 
 In an environment that's different from what you're accustomed to,you're more likely to ben exposed to new cultures,traditions,food,and activities.These new experiences are beneficial in helping you learn more about yourself and grow in new ways.
+
 在一个与你习惯的环境不同的环境中，你更有可能接触到新的文化、传统、食物和活动。这些新的体验有助于你更多地了解自己，并以新的方式成长。
 
 #### Challenges of a College Far Away
 #### 离家远的大学的挑战
 There can be a high cost to visit home for the holidays or other braks betwwn terms,which might mean staying on campus while other students return home.
+
 在节假日或者学期之间的休息时，回趟家会有一个高花费，这也意味着当其他同学回家时你会呆在学校。
 
 When challenges arise,such as loneliness or personal conflict,it may also be difficult to seek out the support and comfort you might easily find at home.While these obstacles can be great opportunities for growth,they can still be difficult experiences in an unfamiliar environment.
+
 当挑战出现时，如孤独或个人冲突，也可能很难找到在家里很容易找到的支持和安慰。虽然这些障碍可能是成长的大好机会，但在陌生的环境中仍然可能是艰难的经历。
 
 Reflect on what you want out of your college experience and what might be the best fit for you.Balance your need for comfort with opportunities for growth and make the most of your decision.
+
 反思一下你想从大学经历中得到什么，以及什么可能最适合你。平衡你对舒适的需求和成长的机会，并充分利用你的决定。
