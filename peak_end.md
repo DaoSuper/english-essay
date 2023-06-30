@@ -1,4 +1,4 @@
-### Why Do We Save the Best for Last?
+### [Why Do We Save the Best for Last?](https://web.shanbay.com/reading/web-news/articles/rdvjz)
 
 ### 最好的总放最后？这与“峰终定律”有关
 
