@@ -15,7 +15,7 @@ We had to create our own entertainment.From swinging on tree branches to playing
 
 Exploring and wandering during vacations were also essential.Visiting Nani's house was quintessential,and we eagerly awaited the **summer holidays** for that.I remember that **as soon as** the holidays began,our aunt would be the first to visit,and we would spend the whole day playing with our cousins,learning new games,some from them and some of our own.
 
-假期间的探索和闲逛也是必不可少的。去奶奶家是典型的做法，我们热切地盼着暑假的到来。我记得，假期一开始，第一个要去拜访的就是姑姑家，我们会花一整天的时间和表兄妹们一起玩，学新游戏，有向他们学的，有我们自己的。
+假期间的探索和闲逛也是必不可少的。去奶奶家是典型的做法，我们热切地盼着暑假的到来。我记得，假期一开始，第一个来拜访的就是姑姑，我们会花一整天的时间和表兄妹们一起玩，学新游戏，有向他们学的，有我们自己的。
 
 For those who couldn't come,we would diligently write letters,**providing** them **with** all the updates and eagerly awaiting their responses.Every afternoon,we would anxiously **wait for** the postman,clutching postcards, creating countless memories.
 
