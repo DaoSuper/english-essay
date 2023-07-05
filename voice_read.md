@@ -25,4 +25,26 @@ Young children often **speak to** themselves as a way to **think through** chall
 
 年轻的孩子经常对自己说话，并把这当做一种全面思考挑战的方式。随着孩子成为更好的思考者，他们变的在脑海中说话，而不是大声说出来。这被称作内部谈话。
 
+Once you're a good reader,it's a lot easier to read silently.Silent reading is more flexible,and it allows you to focus on what's most important.And it's during silent reading that you may discover your inner voice.
 
+一旦你成为一个良好的读者，默读就会容易的多。默读更灵活，它使你能够专注于最重要的内容。当你默读的时候，你可能会发现自己内心的声音。
+
+Developing an inner voice
+
+发展内心的声音
+
+Hearing an inner voice while reading is relatively common.**In fact**,one study found that 4 in 5 people say they often or always hear an inner voice when they read silently to themselves.
+
+当阅读的时候，听到内心的声音相对常见的。事实上，一项研究发现，5个人中有4个人说他们在自己默读的时候，经常或总是听到内心的声音。
+
+It's also been suggested that there are many types of inner voices.Your inner voice might be your own:It might sound **similar to** the way you speak or might be just like your spoken voice.Or it might assume a different tone or timbre altogether.
+
+也有人认为，内心的声音有很多种。你的内心声音可能是你自己的：它听起来可能与你说话的方式相似，也可能与你说的声音一样。或者它可能呈现出完全不同的音调或音色。
+
+A study of adult readers found that the voice you hear in your head may change **depending on** what you are reading.For example,if the lines in a book are spoken by a specific character,you may hear that character's voice in your head.
+
+一项针对成年读者的研究发现，你在脑海中听到的声音可能会随着你所读的内容而变化。例如，如果一本书中的台词是由一个特定的角色说的，你可能会在脑海中听到这个角色的声音。
+
+So,fear not if you start hearing a bunch of voices in your head when you dive into a book - it means you've already become a skilled silent reader.
+
+所以，当你埋头读一本书时，不要担心脑海里开始听到一堆声音———这意味着你已经成为了一个熟练的默读者。
