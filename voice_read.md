@@ -1,4 +1,4 @@
-### What Is That Voice in Your Head When You Read?
+### [What Is That Voice in Your Head When You Read?](https://web.shanbay.com/reading/web-news/articles/adaqe)
 ### 当你默读时，脑海中那个声音是什么？
 
 When you first begin reading,you **read out** loud.

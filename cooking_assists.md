@@ -1,4 +1,4 @@
-### How Cooking Assists in Tackling Anxiety and Improves Mental Health
+### [How Cooking Assists in Tackling Anxiety and Improves Mental Health](https://web.shanbay.com/reading/web-news/articles/batin)
 ### 「做饭」这件小事，治好了我的精神内耗
 
 Is it the future haunting me?Did I unintentionally hurt someone?Am I expecting too much from life?We often drown ourselves in these futile thoughts that cause anxiety,making us weak and distanced from the actual world.

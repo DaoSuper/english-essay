@@ -1,4 +1,4 @@
-### My Summer Vacation: A Soothing Memory
+### [My Summer Vacation: A Soothing Memory](https://web.shanbay.com/reading/web-news/articles/figtg)
 ### 暑假｜你记忆中的暑假是怎么样度过的？
 
 **Writing about** my summer vacations is not just an article for me;it's a feeling that I am reliving with every word I write.
