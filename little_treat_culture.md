@@ -1,4 +1,4 @@
-### (TikTOkers Refuse To Give Up Their 'Little Treat'Culture)[https://web.shanbay.com/reading/web-news/articles/pnijg]
+### [TikTOkers Refuse To Give Up Their 'Little Treat'Culture](https://web.shanbay.com/reading/web-news/articles/pnijg)
 ### “小奖励”文化：当代青年的快乐秘籍
 
 If you're a millennial,then you know it's **pretty much** impossible to get through the day without buying yourself a little something.

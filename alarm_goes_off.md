@@ -1,4 +1,4 @@
-### (Why Do I Wake Up Right Before My Alarm Goes Off?)[https://web.shanbay.com/reading/web-news/articles/rayux]
+### [Why Do I Wake Up Right Before My Alarm Goes Off?](https://web.shanbay.com/reading/web-news/articles/rayux)
 ### 在闹钟响之前醒来的人，是被啥叫醒的？
 
 At the center of your brain,a clump of nerves - called the suprachiasmatic nucleus - oversees your body's clock: the **circadian rhythm**.It determines when you feel sleepy and when you feel bright-eyed.It controls your **blood pressure**,your body temperature,and your sense of time,It turns your body into a finely tuned machine.

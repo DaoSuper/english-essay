@@ -1,4 +1,4 @@
-### (What Does the Average Human Do Every Day?)[https://web.shanbay.com/reading/web-news/articles/btlizn]
+### [What Does the Average Human Do Every Day?](https://web.shanbay.com/reading/web-news/articles/btlizn)
 ### 普通人每天都在做什么？
 
 Roughly eight billion humans live on the planet, and each one experiences the 24 hours of the day a little differently.

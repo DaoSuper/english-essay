@@ -1,4 +1,4 @@
-### (The Admission Letter From Lanzhou University Has Gone Viral)[https://web.shanbay.com/reading/web-news/articles/blavas]
+### [The Admission Letter From Lanzhou University Has Gone Viral](https://web.shanbay.com/reading/web-news/articles/blavas)
 ### 真见“面”礼！新生第一碗牛肉面，学校请了
 
 The admission letter from Lanzhou University has attracted a lot of attention and envy among netizens due to its unique and enticing offer - an "edible" gift!

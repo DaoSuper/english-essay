@@ -1,4 +1,4 @@
-### (Why Adults Often Behave Like Children)[https://web.shanbay.com/reading/web-news/articles/bsvrrp]
+### [Why Adults Often Behave Like Children](https://web.shanbay.com/reading/web-news/articles/bsvrrp)
 ### 遇事总“破防”？为啥我们会表现得像个孩子
 
 Sometimes at moments of particular stress, one adult will turn to another and say:'Stop behaving like a child.'**Or even**'act your age.'
