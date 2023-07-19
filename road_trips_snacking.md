@@ -1,4 +1,4 @@
-### (Cheat Day?71% Agree Road Trip Are a 'Hall Pass' for Snacking)[https://web.shanbay.com/reading/web-news/articles/gucrq]
+### [Cheat Day?71% Agree Road Trip Are a 'Hall Pass' for Snacking](https://web.shanbay.com/reading/web-news/articles/gucrq)
 ### 出游时，你喜欢在车上吃零食吗？
 
 **Embarking on** that long, boring stretch of road during a driving trip isn't very exciting.However, it's where you are going that makes it all worthwhile, right?Maybe not.

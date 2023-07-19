@@ -1,4 +1,4 @@
-### (How Popping Open a Can Became the Sound of Summer)[https://web.shanbay.com/reading/web-news/articles/gfthp]
+### [How Popping Open a Can Became the Sound of Summer](https://web.shanbay.com/reading/web-news/articles/gfthp)
 ### 冷知识：易拉罐的拉环是怎么发明的？
 
 "Pshhh!""Tsssk!""Fwshawww!"However you spell it, it's the sound of summer: the peal of a pop-top cracking a cold can.
