@@ -15,7 +15,7 @@ Borden博士、Saltz博士和Schiff博士为心理健康提供了他们最喜欢
 
 #### 1.I am good enough, I am worthy
 
-#### 1.我足够优秀，我值得
+#### 1、我足够优秀，我值得
 
 This affirmation helps develop this sense of self-esteem, reminding you that you deserve love and respect."It can counter self-doubt and sentiments of unworthiness that a lot of people **go through**, especially in the advent of social media where comparisons can engulf individuals with unworthiness," Borden says.
 
@@ -27,7 +27,7 @@ This affirmation helps develop this sense of self-esteem, reminding you that you
 
 #### 2.I am **capable of** achieving my goals
 
-#### 2.我有能力实现我的目标
+#### 2、我有能力实现我的目标
 
 This positive affirmation for **mental health** puts your capability front and center to inspire confidence and recall your skills.
 
@@ -39,7 +39,7 @@ This positive affirmation for **mental health** puts your capability front and c
 
 #### 3.I have agency and power over myself
 
-#### 3.我有掌控和支配自己的能力
+#### 3、我有掌控和支配自己的能力
 
 We cannot control everything around us - and this positive affirmation for mental health reinforces that fact - but it also reminds us that we have the ability to choose our reactions and responses, Dr.Saltz says."This affirmation serves most people very well."
 
@@ -55,7 +55,7 @@ This affirmation promotes resilience and a positive outlook on change and obstac
 
 #### 5.I forgive myself and release any past mistakes
 
-#### 5.宽恕自己，释怀已经犯过的错误。
+#### 5、宽恕自己，释怀已经犯过的错误
 
 This affirmation encourages self-compassion and the abandonment of self-blame and remorse."It enables you to proceed forward and concentrate on personal development rather than dwelling on past errors," Borden says."This is bone-deep effective for individuals trying to be the best version of themselves and working on **getting rid of** internal self-loathing."
 
