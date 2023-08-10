@@ -1,4 +1,4 @@
-### Benefits of Tree Hugging
+### [Benefits of Tree Hugging](https://web.shanbay.com/reading/web-news/articles/ojhyz)
 
 ### “抱树”疗法：年轻人新爱上的解压方式
 
